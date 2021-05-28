@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BakaWisdom
+- 👀 I’m interested in ... finding a great team to work with that I can support and actively contribute to. My hobbies consist of photography, boardgames, and making ice cream
+- 🌱 I’m currently learning ... Currently I'm prepping for my second game jam next month and building up my portfolio to find a good job now that I've graduated.
+- 📫 How to reach me ... todd.derrick@gmail.com
